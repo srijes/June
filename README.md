@@ -1,2 +1,1 @@
-# June
-Class started from June
+Awakening the mangakul sharingon 
